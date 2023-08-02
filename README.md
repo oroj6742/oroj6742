@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @oroj6742
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...kj
+- 💞️ I’m looking ascxzcxto collaborate on ...kj
 - 📫 How to reach me ...das
 zxcxvzxc
 <!---
