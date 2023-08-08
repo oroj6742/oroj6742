@@ -1,7 +1,7 @@
 jjlkkldadadada- 👋 Hi, I’m @oroj6742
-- 👀 I’m interested in ...
+- 👀 I’m interested in .cxbfdg..
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking ascxzcxto collaborate on ...kj
+- 💞️ I’m looking ascxzcxto colцукаівlaborate on ...kj
 - 📫 How to reach me ...das
 zxcxvzxcasd
 <!---sad
