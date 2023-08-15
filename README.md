@@ -1,4 +1,4 @@
-jjglkkldadadada- 👋 Hi, I’m @oroj6742
+ccxcxcxcjjglkkldadadada- 👋 Hi, I’m @oroj6742
 - 👀 I’m interested in .cxbfdg..
 - 🌱 I’m currently learning ...
 - 💞️gggI’m looking ascxzcuyxto colцукаівlagborate on ...kjsad
