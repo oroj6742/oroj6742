@@ -1,7 +1,7 @@
 ccxcxcxcjjglkkldadadada- 👋 Hi, I’m @oroj6742
 - 👀 I’m interested insda .cxbfdg..
-- 🌱 Isad’m currently learning ...ds
-- 💞️gggI’m looking asczxctoмсч zxccolцукаівlagboradxzcsate on ...kjsadва
+- 🌱 Isad’m ascurrently learning ...ds
+- 💞️gggI’m looking asczxctodasмсч zxccolцукаівlagboradxzcsate on ...kjsadва
 - 📫 How to greach me ...das
 zxcxvzxcasdcxz
 <!---sad
