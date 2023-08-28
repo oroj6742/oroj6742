@@ -1,8 +1,8 @@
 ccxcxcxcjjglkkldadadada- 👋 Hi, I’m @oroj6742
 - 👀 I’m interested insda .cxbfdg..
 - 🌱 Isad’m ascurrently zxczxcclearning ...ds
-- 💞️gggI’m looking ascxczxzxctodasмсч zxccolцукаівlagboradxzcолsate on счм...kjsadва
-- 📫 How to greach me ...das
+- 💞️gggI’m looking ascxczxzxctodasмсч zxccolцукаівlagboradxzcолsate on sdaсчм...kjsadва
+- 📫 How to greach mesd...dasasd
 zxcxvzxcasdcxz
 <!---sad
 oroj6742/oroj6742 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profifbdle.
