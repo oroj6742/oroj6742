@@ -1,7 +1,7 @@
 ccxcxcxcjjglkkldadadada- 👋 Hi, I’m @bmnbnbmnoroj6742
 - 👀 I’m interested insda .cxbfdg..asadcxvfvxcdcxzczx
 - 🌱 Isad’m ascurrently zxczxccleЧсkghjячсarni.vbmng ...asdcxzdsjkфівіфвівмчсфasdazxsdmh,adscxzlhkb
-- 💞️gggI’m looking adszxczxcdsfdshjhkvsasdsdsdsddsacsadczxxczxzxctodіфsfdсчяasasxsdassadasdasdasxsaxмсsівіавіdsxcxч фівсчяzxccolцукаівlagboradxzcолsbmhgjasdzcxczxcate on sdaсчasdsdм.asd..kjsadваasd
+- 💞️gggI’m looking zcxxzcadszxczxcdsfdshjhkvsasdsdsdsddsacsadczxxczxzxctodіфsfdсчяasasxsdassadasdasdasxsaxмсsівіавіdsxcxч фівсчяzxccolцукаівlagboradxzcолsbmhgjasdzcxczxcate on sdaсчasdsdм.asd..kjsadваasd
 - 📫 How to greach mexzczxczxczxczsd...dasasd
 zxcxvzxcasdcxzфів
 <!---sadasdasdasd
