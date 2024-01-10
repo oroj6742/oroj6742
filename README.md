@@ -5,7 +5,7 @@ ccxcxcxcjjglkkldadadada- 👋 Hi, I’m @bmnbnbmnoroj6742
 - 📫 How to greach mexzczxczxczxczsd...dasasd
 zxcxvzxcasdcxzфівцкауавіа
 <!---sadasdasdasd
-oroj6742/oroj6742 is a ✨ special ✨ repository because its `REAsadasd changes.vdf
+oroj6742/oroj6742 sadsaffadsis a ✨ special ✨ repository because its `REAsadasd changes.vdf
 --->
 uiuiyvghzhrwsd
 zxz
